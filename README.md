@@ -1,1 +1,1 @@
-Just a random dude trying out some cool new stuff :)
+Trying to do better !
